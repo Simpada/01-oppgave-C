@@ -1,3 +1,3 @@
 # 01-oppgave-C
 
-I lik to gå to da perk, it hath birdses, and doggos, and grash. It nicestest places. 
+I like to go to the park, it has birds, and dogs, and grass. It is the nicest place. 
